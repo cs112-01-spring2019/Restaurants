@@ -12,6 +12,8 @@ Alec Hagopian | Kentucky Fried Chicken
 Josh Pokorney | Ozumo
 Matthew Tsang | Han Il Kwan
 Saige Madden | Sweet Maple
+Nicholas Lee | R&G Lounge
+Shengping Cui | Boiling Beijing
 Venkatraj Mohan | Boulevard
 Di Zhang | General Tso
 Nicholas Lee | R&G Lounge
