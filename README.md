@@ -9,3 +9,4 @@ Michael Wijanto | Good Mong Kok
 Josh Pokorney | Ozumo
 Matthew Tsang | Han Il Kwan
 Saige Madden | Sweet Maple
+Di Zhang | General Tso
