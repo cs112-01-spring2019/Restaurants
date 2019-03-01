@@ -14,3 +14,5 @@ Matthew Tsang | Han Il Kwan
 Saige Madden | Sweet Maple
 Nicholas Lee | R&G Lounge
 Briant Shen | Papalote's
+Di Zhang | General Tso
+Nicholas Lee | R&G Lounge
