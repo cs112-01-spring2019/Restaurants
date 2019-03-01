@@ -14,3 +14,4 @@ Josh Pokorney | Ozumo
 Matthew Tsang | Han Il Kwan
 Saige Madden | Sweet Maple
 Nicholas Lee | R&G Lounge
+Shengping Cui | Boiling Beijing
