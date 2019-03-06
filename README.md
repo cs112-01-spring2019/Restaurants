@@ -23,3 +23,4 @@ Di Zhang | General Tso
 Nicholas Lee | R&G Lounge
 Luis Sanchez | Belly Burger
 Hermi Balcha | Blackwood
+Noelle Scanlon | Tselogs
